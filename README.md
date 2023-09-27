@@ -1,6 +1,6 @@
 # Aislan Madison 🏍
 Estudante de Análise e Desenvolvimento de Sistemas.
-<p> Buscando constantemente novos conhecimentos.
+<p> Lifelong Learning !!
 <p> Em processo de transição de carreira.
 
 ## Conecte-se comigo
